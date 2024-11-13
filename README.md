@@ -5,7 +5,7 @@
     , successfully (and never defeated :) ) guarding the online assets of very big global corporations who were my customers. 
 - 💞️ I’m looking to help nextgen online leaders and entrepreneurs get rid of their existing blocking obstacles
 -  and eventually thrive together in the IT&C industry.
-- 📫 How to reach me net0pz@l00p.ro
+- 📫 How to reach me net0p@tric.cloud
 - 😄 Pronouns: Eduard L00pul alfa prime cel mai rau
 - ⚡ Fun fact: I created in 1998  the first European company offering online to anyone professional, modern and 
   secured Electronic signature services, acting as the only trusted alternative to the monopolistic and unfortunately 
